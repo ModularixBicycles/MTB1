@@ -15,7 +15,7 @@ Jeżeli czujesz, że masz siły razem z nami podjąć się tego zadania - daj na
 
 Ale nie startujemy kompletnie od zera - przez ostatnie kilka miesięcy pracowaliśmy już nad projektem i mamy pewne efekty, którymi chętnie podzielimy się z całym światem.
 
-Zainteresowany ? ==> skontaktuj sie z nami na naszej grupie:https://www.facebook.com/groups/modularix
+Zainteresowany ? ==> skontaktuj sie z nami na naszej grupie:https://www.facebook.com/groups/modularix  lub email kontakt@modularix.pl
 
 #modularix #opensource #3dprinterbike #cargobike #greendeal
 
@@ -37,6 +37,6 @@ If you feel that you have the strength to undertake this task with us - let us k
 
 But we are not starting completely from scratch - we have already been working on the project for the last few months and we have some results that we will gladly share with the whole world.
 
-Interested ? ==> contact us on our group: https: //www.facebook.com/groups/modularix   or kontakt(at)modularix.pl
+Interested ? ==> contact us on our group: https: //www.facebook.com/groups/modularix   or email kontakt@modularix.pl
 
 #modularix #opensource # 3dprinterbike #cargobike #greendeal
