@@ -37,6 +37,6 @@ If you feel that you have the strength to undertake this task with us - let us k
 
 But we are not starting completely from scratch - we have already been working on the project for the last few months and we have some results that we will gladly share with the whole world.
 
-Interested ? ==> contact us on our group: https: //www.facebook.com/groups/modularix
+Interested ? ==> contact us on our group: https: //www.facebook.com/groups/modularix   or kontakt(at)modularix.pl
 
 #modularix #opensource # 3dprinterbike #cargobike #greendeal
