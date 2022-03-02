@@ -8,6 +8,7 @@ Szukamy:
 - marketingowca
 - prawnika i specjalisty od dokumentów
 - specjalistów lub serwisantów rowerowych
+- ...
 i wielu innych osób, które pragną brać udział w darmowym projekcie. 
 
 Jeżeli czujesz, że masz siły razem z nami podjąć się tego zadania - daj nam znać. Będziemy działać wspólnie na platformie Google, potrzebujesz tylko komputera, dostępu do internetu i dużo chęci do wspólnej pracy. 
